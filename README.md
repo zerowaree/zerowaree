@@ -1,17 +1,15 @@
 <h1 align="center">Hi 👋, I'm jair david</h1>
-<h3 align="center">A passionate amateur programer from Argentina (not to flex butt i have 3 worldcups)</h3>
+<h3 align="center">A passionate amateur programer from Argentina </h3>
 
-- 🔭 I’m currently working on **(rlly nothing)**
+- 🔭 I’m currently working on **ZeroShell**
 
 - 🌱 I’m currently learning **Python**
-
-- 👯 I’m looking to collaborate on **no one**
 
 - 🤝 I’m looking for help with **ZeroShell**
 
 - 💬 Ask me about **Malwares in python**
 
-- 📫 How to reach me **you can't**
+- 📫 How to reach me **vanity#3176 on discord**
 
 - ⚡ Fun fact **I think i am a fucking bullshit person**
 
