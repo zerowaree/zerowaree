@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **Malwares in python**
 
-- 📫 How to reach me **vanity#3176 on discord**
+- 📫 How to reach me **@jairdavidsenderovich on twitter**
 
-- ⚡ Fun fact **I make meth too**
+- ⚡ Fun fact **im minor xD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
