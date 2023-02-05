@@ -7,11 +7,11 @@
 
 - 🤝 I’m looking for help with **ZeroShell**
 
-- 💬 Ask me about **Malwares in python**
+- 💬 Ask me about **Nothing, shut the fuck up**
 
-- 📫 How to reach me **@jairdavidsenderovich on twitter**
+- 📫 How to reach me **cocaine#2724**
 
-- ⚡ Fun fact **im minor xD**
+- ⚡ Fun fact **im want to kill me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
